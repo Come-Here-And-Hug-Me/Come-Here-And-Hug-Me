@@ -1,5 +1,5 @@
 •Welcome to my page!.
-<img width="735" height="685" alt="wewew" src="https://github.com/user-attachments/assets/4df4016d-d2d3-45b8-9830-e52201249310" />
+<img width="991" height="820" alt="Không Có Tiêu Đề220_20260803005535" src="https://github.com/user-attachments/assets/db689f69-d919-4afc-af50-4bb9106618d9" />
 
 --------------------
 •Fun fact:
@@ -34,4 +34,7 @@
 
 • and several other fandoms, etc.
 
-<img width="666" height="848" alt="WEMMBU FANART! 👾⚜️💜" src="https://github.com/user-attachments/assets/1549f65a-2be3-4cfb-9262-8b938b269cf7" />
+<img width="657" height="811" alt="Không Có Tiêu Đề218_20260731003357" src="https://github.com/user-attachments/assets/9f2887dc-5eb4-4c59-98d1-08cb78b650f3" />
+
+
+
