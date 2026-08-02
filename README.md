@@ -14,7 +14,7 @@
 
 -Don't copy my skin ideas or artwork if you don't want to get called out on the "criticism" page.
 
--If we're close, I can accommodate your wishes.
+• Some of my game and social media accounts are linked above.
 ---------------------------------------
 -The fandoms I often appear in:
 • Forsaken 
