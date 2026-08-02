@@ -17,12 +17,21 @@
 • Some of my game and social media accounts are linked above.
 ---------------------------------------
 -The fandoms I often appear in:
+
 • Forsaken 
+
 • Danny's world 
+
 • Unstable Universe
+
 • Block tales
+
 • Minecraft ARG
+
 • Die of death
+
 • Honkai star rail
+
 • and several other fandoms, etc.
+
 <img width="666" height="848" alt="WEMMBU FANART! 👾⚜️💜" src="https://github.com/user-attachments/assets/1549f65a-2be3-4cfb-9262-8b938b269cf7" />
