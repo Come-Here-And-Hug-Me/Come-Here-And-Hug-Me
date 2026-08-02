@@ -1,5 +1,5 @@
 •Welcome to my page!.
-<img width="736" height="414" alt="wdwd" src="https://github.com/user-attachments/assets/707d1a09-80f8-4a1e-9b4f-fdf2a72e9475" />
+<img width="735" height="685" alt="wewew" src="https://github.com/user-attachments/assets/4df4016d-d2d3-45b8-9830-e52201249310" />
 
 --------------------
 •Fun fact:
