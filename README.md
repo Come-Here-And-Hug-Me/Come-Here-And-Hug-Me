@@ -14,6 +14,8 @@
 
 -Don't copy my skin ideas or artwork if you don't want to get called out on the "criticism" page.
 
+-If we are close, I can fulfill your request. 
+
 • Some of my game and social media accounts are linked above.
 
 <img width="784" height="733" alt="Không Có Tiêu Đề219_20260803010721" src="https://github.com/user-attachments/assets/270b922a-78be-4709-a8f6-78692a094d3f" />
