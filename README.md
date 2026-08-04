@@ -1,5 +1,6 @@
 •Welcome to my page!.
-<img width="991" height="820" alt="Không Có Tiêu Đề220_20260803005535" src="https://github.com/user-attachments/assets/db689f69-d919-4afc-af50-4bb9106618d9" />
+
+<img width="736" height="516" alt="Không Có Tiêu Đề158_20260608030611" src="https://github.com/user-attachments/assets/ff3628e2-163b-493f-b26f-5f20177e0426" />
 
 --------------------
 •Fun fact:
@@ -18,7 +19,7 @@
 
 • Some of my game and social media accounts are linked above.
 
-<img width="784" height="733" alt="Không Có Tiêu Đề219_20260803010721" src="https://github.com/user-attachments/assets/270b922a-78be-4709-a8f6-78692a094d3f" />
+<img width="580" height="631" alt="Không Có Tiêu Đề146_20260608015623" src="https://github.com/user-attachments/assets/69586ede-d5e2-4558-9b40-a8136d240f61" />
 
 ---------------------------------------
 -The fandoms I often appear in:
@@ -41,6 +42,7 @@
 
 <img width="657" height="811" alt="Không Có Tiêu Đề218_20260731003357" src="https://github.com/user-attachments/assets/9f2887dc-5eb4-4c59-98d1-08cb78b650f3" />
 
+
 • All my mascots:
 
 -Art:
@@ -49,9 +51,7 @@
 -Roblox oc:
 <img width="2340" height="1080" alt="Không Có Tiêu Đề176_20260623180010" src="https://github.com/user-attachments/assets/ceb75135-ae37-442c-9389-73a3045444f1" />
 
--cooperate :
-<img width="1080" height="1080" alt="Không Có Tiêu Đề168_20260614215539" src="https://github.com/user-attachments/assets/0895b313-dc1e-4bef-9cea-92c65ebf794c" />
-
+...
 
 
 
