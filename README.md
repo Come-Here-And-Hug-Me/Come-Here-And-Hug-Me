@@ -43,6 +43,7 @@
 <img width="657" height="811" alt="Không Có Tiêu Đề218_20260731003357" src="https://github.com/user-attachments/assets/9f2887dc-5eb4-4c59-98d1-08cb78b650f3" />
 
 
+
 • All my mascots:
 
 -Art:
@@ -55,7 +56,21 @@
 
 •Some of my famous works of art:
 
-<img width="1088" height="2048" alt="Không Có Tiêu Đề204_20260719013931" src="https://github.com/user-attachments/assets/d3989182-0d5d-4490-a24e-c3ce7b9d3517" />
+
+• <img width="991" height="820" alt="Không Có Tiêu Đề221_20260805165559" src="https://github.com/user-attachments/assets/1c680896-7af2-4cd1-acd8-34388e7fde90" />
+
+• <img width="784" height="733" alt="Không Có Tiêu Đề219_20260803010721" src="https://github.com/user-attachments/assets/8cc67aa8-1c7d-40e0-a4d2-f1fd1ec8f768" />
+
+• <img width="1080" height="1076" alt="Không Có Tiêu Đề198_20260714232136" src="https://github.com/user-attachments/assets/4e524a5a-6e15-4311-9c9e-4c961ca6e9b7" />
+
+• <img width="913" height="764" alt="Không Có Tiêu Đề197_20260714231856" src="https://github.com/user-attachments/assets/f01ed56f-82e4-4540-8c63-3661695b6ee8" />
+
+• <img width="736" height="509" alt="Không Có Tiêu Đề166_20260728195648" src="https://github.com/user-attachments/assets/e15a890b-08ff-4bad-bd65-2506a7ea10d9" />
+
+•
+
+
+
 
 
 
