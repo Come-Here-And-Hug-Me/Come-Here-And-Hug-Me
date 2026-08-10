@@ -44,7 +44,8 @@
 
 • and several other fandoms, etc.
 
-<img width="735" height="778" alt="Không Có Tiêu Đề224_20260806205841" src="https://github.com/user-attachments/assets/fe1a9404-85c8-4855-8ce5-25232deaea40" />
+<img width="735" height="778" alt="Không Có Tiêu Đề234_20260810183858" src="https://github.com/user-attachments/assets/34204f76-e8aa-4049-b72d-8792d8fa49ba" />
+
 
 
 
