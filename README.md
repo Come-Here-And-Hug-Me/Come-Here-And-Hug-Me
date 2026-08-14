@@ -22,7 +22,8 @@
 
 • Some of my game and social media accounts are linked above.
 
-<img width="735" height="778" alt="Không Có Tiêu Đề223_20260806205055" src="https://github.com/user-attachments/assets/64dc4b15-b277-4c6b-97af-abb9e1771124" />
+<img width="735" height="713" alt="Không Có Tiêu Đề224_20260812100658" src="https://github.com/user-attachments/assets/23d367e0-225a-4d45-b3d9-0218d9628429" />
+
 
 
 ---------------------------------------
@@ -44,8 +45,9 @@
 
 • and several other fandoms, etc.
 
-<img width="735" height="778" alt="Không Có Tiêu Đề234_20260810183858" src="https://github.com/user-attachments/assets/34204f76-e8aa-4049-b72d-8792d8fa49ba" />
+<img width="735" height="778" alt="Không Có Tiêu Đề237_20260812101409" src="https://github.com/user-attachments/assets/6e364d4c-fb25-4b50-9479-998d1d1f86cd" />
 
+--------------------------------------
 
 
 
