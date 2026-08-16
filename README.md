@@ -20,6 +20,10 @@
 
 -I really cherish friends who share the same fandom or interests as me.
 
+-I especially love clowns!! For example, Pierrot, ClownPierce, Pomni, etc. Those three combined represent my personality lol.
+
+-My name PinnieTenku, was inspired by those clowns that all have the letter "P" in their names XD!
+
 • Some of my game and social media accounts are linked above.
 
 <img width="735" height="713" alt="Không Có Tiêu Đề224_20260812100658" src="https://github.com/user-attachments/assets/23d367e0-225a-4d45-b3d9-0218d9628429" />
@@ -42,6 +46,10 @@
 • Hyper Squad 
 
 • Honkai star rail
+
+• The Freak Circus
+
+•
 
 • and several other fandoms, etc.
 
@@ -67,7 +75,8 @@
 •UU SMP:
 <img width="657" height="811" alt="Không Có Tiêu Đề218_20260731003357" src="https://github.com/user-attachments/assets/a6f91875-943e-472b-961c-a89b7b544075" />
 
-<img width="2048" height="2015" alt="Không Có Tiêu Đề241_20260816140610" src="https://github.com/user-attachments/assets/49021b77-e8c2-4a77-9e5c-9cca1ebf8b76" />
+<img width="2048" height="2015" alt="Không Có Tiêu Đề241_20260816172505" src="https://github.com/user-attachments/assets/4bd99866-a14e-4644-869b-16f7a8bbb34f" />
+
 
 •Minecraft ARG:
 <img width="784" height="733" alt="Không Có Tiêu Đề219_20260803010721" src="https://github.com/user-attachments/assets/efcb3aec-1fe1-438f-8163-57b6fc1edea8" />
