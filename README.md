@@ -67,6 +67,8 @@
 •UU SMP:
 <img width="657" height="811" alt="Không Có Tiêu Đề218_20260731003357" src="https://github.com/user-attachments/assets/a6f91875-943e-472b-961c-a89b7b544075" />
 
+<img width="2048" height="2015" alt="Không Có Tiêu Đề241_20260816140610" src="https://github.com/user-attachments/assets/49021b77-e8c2-4a77-9e5c-9cca1ebf8b76" />
+
 •Minecraft ARG:
 <img width="784" height="733" alt="Không Có Tiêu Đề219_20260803010721" src="https://github.com/user-attachments/assets/efcb3aec-1fe1-438f-8163-57b6fc1edea8" />
 
@@ -87,7 +89,8 @@
 
 •etc..
 
-<img width="1080" height="1146" alt="Không Có Tiêu Đề23_20260807003305" src="https://github.com/user-attachments/assets/ad4cfaa2-feef-4a75-8ee6-6062c815f422" />
+<img width="1080" height="1146" alt="Không Có Tiêu Đề27_20260815193857" src="https://github.com/user-attachments/assets/5f47aece-593f-4f25-93bc-335761aef5a4" />
+
 
 
 
