@@ -75,7 +75,9 @@
 •UU SMP:
 <img width="657" height="811" alt="Không Có Tiêu Đề218_20260731003357" src="https://github.com/user-attachments/assets/a6f91875-943e-472b-961c-a89b7b544075" />
 
-<img width="707" height="851" alt="Không Có Tiêu Đề244_20260818192655" src="https://github.com/user-attachments/assets/daa746ff-7b49-47f8-aff3-6adaea838fb2" />
+<img width="707" height="851" alt="Không Có Tiêu Đề245_20260818211451" src="https://github.com/user-attachments/assets/d90e06de-d0a8-4ddc-bc1b-2f8171bf3ece" />
+
+•
 
 <img width="2048" height="2015" alt="Không Có Tiêu Đề241_20260816172505" src="https://github.com/user-attachments/assets/4bd99866-a14e-4644-869b-16f7a8bbb34f" />
 
