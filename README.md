@@ -1,6 +1,7 @@
 •Welcome to my page!.
 
-<img width="735" height="778" alt="Không Có Tiêu Đề224_20260806210051" src="https://github.com/user-attachments/assets/958dec57-bee1-4fd8-93b2-3b7335ed7a0e" />
+<img width="1218" height="1383" alt="Không Có Tiêu Đề248_20260824013645" src="https://github.com/user-attachments/assets/bcc8b423-40f9-42c9-8580-2d6232a1bc7d" />
+
 
 
 --------------------
