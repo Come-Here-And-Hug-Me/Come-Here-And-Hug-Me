@@ -81,7 +81,8 @@
 <img width="2340" height="1080" alt="Không Có Tiêu Đề176_20260623180010" src="https://github.com/user-attachments/assets/ceb75135-ae37-442c-9389-73a3045444f1" />
 
 -Repost:
-<img width="1080" height="1445" alt="IMG_20260824_105402" src="https://github.com/user-attachments/assets/c4bc55ba-42a0-4c5f-af6e-7dab88c291b1" />
+<img width="1078" height="1465" alt="IMG_20260825_004239" src="https://github.com/user-attachments/assets/1fdbd61b-da9c-4294-a688-02533b785e9d" />
+
 
 ...
 
