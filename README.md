@@ -1,6 +1,7 @@
 •Welcome to my page!.
 
-<img width="1218" height="1383" alt="Không Có Tiêu Đề248_20260824013645" src="https://github.com/user-attachments/assets/bcc8b423-40f9-42c9-8580-2d6232a1bc7d" />
+<img width="1218" height="1383" alt="Không Có Tiêu Đề248_20260824102929" src="https://github.com/user-attachments/assets/0de053c0-1e55-45c4-bec5-2a7c430d4b08" />
+
 
 
 
@@ -10,6 +11,8 @@
 -sex: Genderfluid.
 
 -I am a minor artist !
+
+-My English is pretty bad! So you'll see me reply slowly or misspell a few words, lol.
 
 -My social media pages mainly contain content about games and fandom, along with my artwork.
 
@@ -21,9 +24,15 @@
 
 -I really cherish friends who share the same fandom or interests as me.
 
+-All the pictures you see here are my favorite works of art!(In each corner there's a signature "Youkai," which is my nickname).
+
 -I especially love clowns!! For example, Pierrot, ClownPierce, Pomni, etc. Those three combined represent my personality lol.
 
 -My name PinnieTenku, was inspired by those clowns that all have the letter "P" in their names XD!
+
+-When we become friends, I'll give you my Pony Town skins if you need them. 
+
+-Oh, I absolutely love Minecraft! It's a shame that so few of my friends from my country play it. If only I could make friends from other countries, i also want to play Minecraft with many people. 
 
 • Some of my game and social media accounts are linked above.
 
@@ -105,6 +114,8 @@
 
 <img width="1080" height="1146" alt="Không Có Tiêu Đề27_20260815193857" src="https://github.com/user-attachments/assets/5f47aece-593f-4f25-93bc-335761aef5a4" />
 
+-It will be updated regularly over time!
+-Thanks for watching!
 
 
 
