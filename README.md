@@ -36,7 +36,8 @@
 
 • Some of my game and social media accounts are linked above.
 
-<img width="735" height="713" alt="Không Có Tiêu Đề224_20260812100658" src="https://github.com/user-attachments/assets/23d367e0-225a-4d45-b3d9-0218d9628429" />
+<img width="1332" height="758" alt="Không Có Tiêu Đề250_20260824142331" src="https://github.com/user-attachments/assets/d72c41ea-53e2-464b-9877-d5350fd9404a" />
+
 
 
 
@@ -51,7 +52,7 @@
 
 • Block tales
 
-• Minecraft ARG "MCYT"
+• Minecraft YouTube "MCYT"
 
 • Hyper Squad 
 
@@ -63,7 +64,8 @@
 
 • and several other fandoms, etc.
 
-<img width="735" height="778" alt="Không Có Tiêu Đề237_20260812101409" src="https://github.com/user-attachments/assets/6e364d4c-fb25-4b50-9479-998d1d1f86cd" />
+<img width="657" height="811" alt="Không Có Tiêu Đề218_20260731003357" src="https://github.com/user-attachments/assets/d2848f9b-7ce9-4776-88f0-187fd051bac5" />
+
 
 --------------------------------------
 
@@ -86,7 +88,10 @@
 •Some of my famous works of art:
 
 •UU SMP:
-<img width="657" height="811" alt="Không Có Tiêu Đề218_20260731003357" src="https://github.com/user-attachments/assets/a6f91875-943e-472b-961c-a89b7b544075" />
+<img width="735" height="778" alt="Không Có Tiêu Đề237_20260812101409" src="https://github.com/user-attachments/assets/2083f516-7184-485f-9474-7f148a7dc6f2" />
+
+<img width="735" height="713" alt="Không Có Tiêu Đề224_20260812100658" src="https://github.com/user-attachments/assets/037d19a6-afd3-4912-a307-ac3148b16724" />
+
 
 <img width="707" height="851" alt="Không Có Tiêu Đề245_20260818211451" src="https://github.com/user-attachments/assets/d90e06de-d0a8-4ddc-bc1b-2f8171bf3ece" />
 
@@ -95,7 +100,7 @@
 <img width="2048" height="2015" alt="Không Có Tiêu Đề241_20260816172505" src="https://github.com/user-attachments/assets/4bd99866-a14e-4644-869b-16f7a8bbb34f" />
 
 
-•Minecraft ARG:
+•MCYT:
 <img width="784" height="733" alt="Không Có Tiêu Đề219_20260803010721" src="https://github.com/user-attachments/assets/efcb3aec-1fe1-438f-8163-57b6fc1edea8" />
 
 •FSK:
