@@ -100,6 +100,9 @@
 
 <img width="2048" height="2015" alt="Không Có Tiêu Đề241_20260816172505" src="https://github.com/user-attachments/assets/4bd99866-a14e-4644-869b-16f7a8bbb34f" />
 
+•Mascots by Gh:@Wemmbus
+<img width="1420" height="1634" alt="Không Có Tiêu Đề253_20260827003223" src="https://github.com/user-attachments/assets/06fc5e45-c1ef-4421-8eec-1b9dd42ddd87" />
+
 
 •MCYT:
 <img width="784" height="733" alt="Không Có Tiêu Đề219_20260803010721" src="https://github.com/user-attachments/assets/efcb3aec-1fe1-438f-8163-57b6fc1edea8" />
