@@ -80,8 +80,8 @@
 -Roblox oc:
 <img width="2340" height="1080" alt="Không Có Tiêu Đề176_20260623180010" src="https://github.com/user-attachments/assets/ceb75135-ae37-442c-9389-73a3045444f1" />
 
--Repost:
-<img width="1078" height="1465" alt="IMG_20260825_004239" src="https://github.com/user-attachments/assets/1fdbd61b-da9c-4294-a688-02533b785e9d" />
+-Minecraft oc:
+<img width="2048" height="2048" alt="Không Có Tiêu Đề254_20260828155946" src="https://github.com/user-attachments/assets/13332af0-a150-4fcb-90b4-1593ead3e9f4" />
 
 
 ...
