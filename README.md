@@ -87,7 +87,8 @@
 
 -<img width="1080" height="1549" alt="Không Có Tiêu Đề137" src="https://github.com/user-attachments/assets/c87f6bf1-dea1-48d2-850f-5d55d9accd94" />
 
--<img width="1943" height="2072" alt="Không Có Tiêu Đề141_20260818113333" src="https://github.com/user-attachments/assets/294fa732-9cf9-441a-ad95-07e6b3f0c809" />
+-<img width="1943" height="2072" alt="Không Có Tiêu Đề141_20260830173450" src="https://github.com/user-attachments/assets/e6fcb425-cd67-484c-b930-b831b85e7897" />
+
 
 
 
