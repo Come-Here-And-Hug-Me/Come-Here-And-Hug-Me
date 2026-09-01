@@ -113,6 +113,14 @@
 •Mascots by Gh:@Wemmbus
 <img width="1420" height="1634" alt="Không Có Tiêu Đề255_20260827180338" src="https://github.com/user-attachments/assets/7e85b154-cc7c-4679-8af8-33f477dd0421" />
 
+•"You and Me, It's all yours anyway ~"
+<img width="1614" height="1165" alt="Không Có Tiêu Đề261_Đã khôi phục2_20260831231222" src="https://github.com/user-attachments/assets/277d45bd-64c5-474f-b05d-9544582c6800" />
+
+" Both pieces of art are so beautiful, I don't know which one to choose "
+
+<img width="1614" height="1165" alt="Không Có Tiêu Đề261_Đã khôi phục2_20260831230915" src="https://github.com/user-attachments/assets/cef4369a-3dcc-49f5-964d-0c639f4ae3a2" />
+
+
 
 
 •MCYT:
