@@ -111,6 +111,10 @@
 
 <img width="2048" height="2015" alt="Không Có Tiêu Đề241_20260816172505" src="https://github.com/user-attachments/assets/4bd99866-a14e-4644-869b-16f7a8bbb34f" />
 
+<img width="1080" height="1979" alt="Không Có Tiêu Đề269_20260908210004" src="https://github.com/user-attachments/assets/b048d7ed-570d-4e6b-8f8b-779361fca7e2" />
+"Sty 2"
+
+
 •Mascots by Gh:@Wemmbus
 <img width="1420" height="1634" alt="Không Có Tiêu Đề255_20260827180338" src="https://github.com/user-attachments/assets/7e85b154-cc7c-4679-8af8-33f477dd0421" />
 
