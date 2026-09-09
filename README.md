@@ -111,7 +111,8 @@
 
 <img width="2048" height="2015" alt="Không Có Tiêu Đề241_20260816172505" src="https://github.com/user-attachments/assets/4bd99866-a14e-4644-869b-16f7a8bbb34f" />
 
-<img width="1080" height="1979" alt="Không Có Tiêu Đề269_20260908210004" src="https://github.com/user-attachments/assets/b048d7ed-570d-4e6b-8f8b-779361fca7e2" />
+<img width="1080" height="1831" alt="Không Có Tiêu Đề270_20260909120504" src="https://github.com/user-attachments/assets/2e318521-5964-41e7-a96c-d912f5eef917" />
+
 "Sty 2"
 
 
