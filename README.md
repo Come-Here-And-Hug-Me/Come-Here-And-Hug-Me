@@ -55,11 +55,19 @@
 
 • Hyper Squad 
 
-• Honkai star rail
+• Honkai star rail "HSR"
 
 • The Freak Circus
 
 • Fundamental Paper Education "FPE"
+
+• Animal Hospital (Anomaly) 
+
+• Arena of Valor "Aov"
+
+• Genshin Impact
+
+• Die of Death 
 
 • and several other fandoms, etc.
 
@@ -71,7 +79,7 @@
 
 
 
-• All my mascots:
+• All my mascots "Sona" :
 
 -Art oc:
 <img width="1182" height="2016" alt="Không Có Tiêu Đề26" src="https://github.com/user-attachments/assets/5041f621-c232-4fb6-b3c2-eb1820298bbb" />
@@ -104,16 +112,11 @@
 
 <img width="735" height="713" alt="Không Có Tiêu Đề224_20260812100658" src="https://github.com/user-attachments/assets/037d19a6-afd3-4912-a307-ac3148b16724" />
 
-
-<img width="707" height="851" alt="Không Có Tiêu Đề245_20260818211451" src="https://github.com/user-attachments/assets/d90e06de-d0a8-4ddc-bc1b-2f8171bf3ece" />
-
-•
-
 <img width="2048" height="2015" alt="Không Có Tiêu Đề241_20260816172505" src="https://github.com/user-attachments/assets/4bd99866-a14e-4644-869b-16f7a8bbb34f" />
 
-<img width="1080" height="1831" alt="Không Có Tiêu Đề270_20260909120504" src="https://github.com/user-attachments/assets/2e318521-5964-41e7-a96c-d912f5eef917" />
+"Sty2"
 
-"Sty 2"
+<img width="1080" height="1831" alt="Không Có Tiêu Đề270_20260909120504" src="https://github.com/user-attachments/assets/2e318521-5964-41e7-a96c-d912f5eef917" />
 
 <img width="1702" height="1164" alt="Không Có Tiêu Đề265_20260916120858" src="https://github.com/user-attachments/assets/a31bfb13-c9bf-48c1-bbb4-9696f899b599" />
 
