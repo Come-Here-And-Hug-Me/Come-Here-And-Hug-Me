@@ -9,7 +9,7 @@
 --------------------
 •Fun fact:
 
--sex: Genderfluid.
+-sex: Genderfluid Ace
 
 -I am a minor artist !
 
