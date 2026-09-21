@@ -118,6 +118,9 @@
 
 <img width="1080" height="1831" alt="Không Có Tiêu Đề270_20260909120504" src="https://github.com/user-attachments/assets/2e318521-5964-41e7-a96c-d912f5eef917" />
 
+<img width="1364" height="1057" alt="Không Có Tiêu Đề280_20260922001408" src="https://github.com/user-attachments/assets/4480aa2b-7ed3-4ec6-b950-db1b9ed641b9" />
+
+
 <img width="1702" height="1164" alt="Không Có Tiêu Đề265_20260916120858" src="https://github.com/user-attachments/assets/a31bfb13-c9bf-48c1-bbb4-9696f899b599" />
 
 
