@@ -1,6 +1,6 @@
 •Welcome to my page!.
 
-<img width="1218" height="1383" alt="Không Có Tiêu Đề249_20260907143409" src="https://github.com/user-attachments/assets/e6d52f7c-7f65-4356-b816-6023e7e1218b" />
+<img width="2048" height="1471" alt="Không Có Tiêu Đề301_Đã khôi phục2_20261020102549" src="https://github.com/user-attachments/assets/bee00c62-1de6-4e0b-831d-fe8349f9be08" />
 
 
 
@@ -10,6 +10,8 @@
 •Fun fact:
 
 https://pronouns.cc/@TenKu
+
+ID Discord :@Evenght_Tenku 
 
 -I am a minor artist !
 
@@ -27,11 +29,12 @@ https://pronouns.cc/@TenKu
 
 -All the pictures you see here are my favorite works of art!(In each corner there's a signature "Youkai," which is my nickname).
 
--I especially love clowns!! For example, Pierrot, ClownPierce, Pomni, etc. Those three combined represent my personality lol.
+-I especially love clowns!! For example, Pierrot, ClownPierce, Pomni, etc. Those three combined represent my personality.
 
 • Some of my game and social media accounts are linked above.
 
-<img width="1332" height="758" alt="Không Có Tiêu Đề250_20260824142331" src="https://github.com/user-attachments/assets/d72c41ea-53e2-464b-9877-d5350fd9404a" />
+<img width="1614" height="1165" alt="Không Có Tiêu Đề261_Đã khôi phục2_20260831230915" src="https://github.com/user-attachments/assets/5e1a4fbf-9dfd-4e59-b00c-1778fac5788d" />
+
 
 
 
@@ -67,7 +70,6 @@ https://pronouns.cc/@TenKu
 
 • and several other fandoms, etc.
 
-<img width="657" height="811" alt="Không Có Tiêu Đề218_20260731003357" src="https://github.com/user-attachments/assets/d2848f9b-7ce9-4776-88f0-187fd051bac5" />
 
 
 --------------------------------------
@@ -108,21 +110,6 @@ https://pronouns.cc/@TenKu
 <img width="1702" height="1164" alt="Không Có Tiêu Đề265_20260916120858" src="https://github.com/user-attachments/assets/a31bfb13-c9bf-48c1-bbb4-9696f899b599" />
 
 
-•The Circumstance Duo
-
-<img width="2048" height="1471" alt="Không Có Tiêu Đề285_20260925223721" src="https://github.com/user-attachments/assets/c42148e0-436f-4113-b731-da018a650c9b" />
-
-
-<img width="1614" height="1165" alt="Không Có Tiêu Đề261_Đã khôi phục2_20260831230915" src="https://github.com/user-attachments/assets/c801bcf2-066d-4452-acd9-30539eb0c3a6" />
-
-
-<img width="2048" height="1471" alt="Không Có Tiêu Đề301_Đã khôi phục2_20261020102549" src="https://github.com/user-attachments/assets/f6a1e90c-25d5-48bc-b30c-c17cce2b95d8" />
-
-
-
-
-
-
 •MCYT:
 <img width="784" height="733" alt="Không Có Tiêu Đề219_20260803010721" src="https://github.com/user-attachments/assets/efcb3aec-1fe1-438f-8163-57b6fc1edea8" />
 
@@ -152,7 +139,6 @@ https://pronouns.cc/@TenKu
 
 •etc..
 
-<img width="1080" height="1146" alt="Không Có Tiêu Đề27_20260815193857" src="https://github.com/user-attachments/assets/5f47aece-593f-4f25-93bc-335761aef5a4" />
 
 -It will be updated regularly over time!
 
