@@ -9,7 +9,7 @@
 --------------------
 •Fun fact:
 
--sex: Genderfluid Ace
+https://pronouns.cc/@TenKu
 
 -I am a minor artist !
 
@@ -98,10 +98,6 @@
 
 -<img width="1943" height="2072" alt="Không Có Tiêu Đề141_20260830173450" src="https://github.com/user-attachments/assets/e6fcb425-cd67-484c-b930-b831b85e7897" />
 
--Creator:
-<img width="1463" height="1080" alt="Không Có Tiêu Đề285_20260924221738" src="https://github.com/user-attachments/assets/55efd18e-29ad-4edf-869e-8d2c6d1128e7" />
-
-
 
 
 
@@ -129,15 +125,15 @@
 <img width="1702" height="1164" alt="Không Có Tiêu Đề265_20260916120858" src="https://github.com/user-attachments/assets/a31bfb13-c9bf-48c1-bbb4-9696f899b599" />
 
 
-•Mascots by Gh:@Wemmbus
-<img width="1420" height="1634" alt="Không Có Tiêu Đề255_20260827180338" src="https://github.com/user-attachments/assets/7e85b154-cc7c-4679-8af8-33f477dd0421" />
+•The Circumstance Duo
 
-•"You and Me, It's all yours anyway ~"
+<img width="2048" height="1471" alt="Không Có Tiêu Đề285_20260925223721" src="https://github.com/user-attachments/assets/c42148e0-436f-4113-b731-da018a650c9b" />
 
-<img width="1614" height="1165" alt="Không Có Tiêu Đề261_Đã khôi phục2_20260831230915" src="https://github.com/user-attachments/assets/cef4369a-3dcc-49f5-964d-0c639f4ae3a2" />
 
-•VUSA Duo!
-<img width="2048" height="1471" alt="Không Có Tiêu Đề285_20260925223721" src="https://github.com/user-attachments/assets/9cff26a4-e766-4e29-b9b2-379db05a9028" />
+<img width="1614" height="1165" alt="Không Có Tiêu Đề261_Đã khôi phục2_20260831230915" src="https://github.com/user-attachments/assets/c801bcf2-066d-4452-acd9-30539eb0c3a6" />
+
+
+<img width="2048" height="1471" alt="Không Có Tiêu Đề301_Đã khôi phục2_20261020102549" src="https://github.com/user-attachments/assets/f6a1e90c-25d5-48bc-b30c-c17cce2b95d8" />
 
 
 
@@ -156,6 +152,15 @@
 <img width="736" height="516" alt="Không Có Tiêu Đề158_20260608030611" src="https://github.com/user-attachments/assets/6bb2061a-1b24-4cfc-8aeb-71a70770faf2" />
 
 <img width="580" height="631" alt="Không Có Tiêu Đề146_20260608015623" src="https://github.com/user-attachments/assets/402a21d5-0440-41ad-afa2-2d75a4ddccde" />
+
+<img width="1080" height="1312" alt="Không Có Tiêu Đề294_20261010131112" src="https://github.com/user-attachments/assets/f371af56-55b4-48a2-a327-629214c78696" />
+
+<img width="1284" height="1041" alt="Không Có Tiêu Đề291_20261001193653" src="https://github.com/user-attachments/assets/bba5bc85-34e9-4d18-8019-01bb2549e046" />
+
+<img width="2048" height="1600" alt="Không Có Tiêu Đề288_20261001153828" src="https://github.com/user-attachments/assets/0dfbd90e-ffbc-4de1-97d5-b604a037eefb" />
+
+
+
 
 •HSR:
 <img width="1712" height="1080" alt="Không Có Tiêu Đề148" src="https://github.com/user-attachments/assets/484175f9-84c0-4c4e-b9c1-b58a170d3c2a" />
