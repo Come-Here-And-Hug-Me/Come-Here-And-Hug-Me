@@ -29,10 +29,6 @@ https://pronouns.cc/@TenKu
 
 -I especially love clowns!! For example, Pierrot, ClownPierce, Pomni, etc. Those three combined represent my personality lol.
 
--I really wish someone would draw art of my mascot for me On birthdays or special occasions, or simply because you like it ^^.   
-
--Oh, I absolutely love Minecraft! It's a shame that so few of my friends from my country play it. If only I could make friends from other countries, i also want to play Minecraft with many people. 
-
 • Some of my game and social media accounts are linked above.
 
 <img width="1332" height="758" alt="Không Có Tiêu Đề250_20260824142331" src="https://github.com/user-attachments/assets/d72c41ea-53e2-464b-9877-d5350fd9404a" />
@@ -45,7 +41,7 @@ https://pronouns.cc/@TenKu
 
 • Forsaken 
 
-• Danny's world 
+• Dandy's world 
 
 • Unstable Universe SMP
 
@@ -79,26 +75,13 @@ https://pronouns.cc/@TenKu
 
 
 
-• All my mascots "Sona" :
+• Some my mascots "Sona" :
 
 -Art oc:
 <img width="1182" height="2016" alt="Không Có Tiêu Đề26" src="https://github.com/user-attachments/assets/5041f621-c232-4fb6-b3c2-eb1820298bbb" />
 
--Roblox oc:
-<img width="2340" height="1080" alt="Không Có Tiêu Đề176_20260623180010" src="https://github.com/user-attachments/assets/ceb75135-ae37-442c-9389-73a3045444f1" />
-
 -Minecraft oc:
 <img width="2048" height="2048" alt="Không Có Tiêu Đề256_20260828232843" src="https://github.com/user-attachments/assets/2d707372-69a9-4870-a077-378d667fe9f4" />
-
--Danny's world oc:
-<img width="1274" height="2048" alt="Không Có Tiêu Đề24" src="https://github.com/user-attachments/assets/96acae05-2ff1-44c4-aeab-92bd34d66b7b" />
-"I'm too lazy to rework the old artwork."
-
--<img width="1080" height="1549" alt="Không Có Tiêu Đề137" src="https://github.com/user-attachments/assets/c87f6bf1-dea1-48d2-850f-5d55d9accd94" />
-
--<img width="1943" height="2072" alt="Không Có Tiêu Đề141_20260830173450" src="https://github.com/user-attachments/assets/e6fcb425-cd67-484c-b930-b831b85e7897" />
-
-
 
 
 ...
