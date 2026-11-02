@@ -11,7 +11,7 @@
 
 https://pronouns.cc/@TenKu
 
-ID Discord :@Evenght_Tenku 
+ID Discord :@evenight_tenku
 
 -I am a minor artist !
 
@@ -30,6 +30,13 @@ ID Discord :@Evenght_Tenku
 -All the pictures you see here are my favorite works of art!(In each corner there's a signature "Youkai," which is my nickname).
 
 -I especially love clowns!! For example, Pierrot, ClownPierce, Pomni, etc. Those three combined represent my personality.
+
+-UUSMP's number one fan !! I deeply empathize with Spoke. 
+<img width="2048" height="2048" alt="FB_IMG_1793443489242" src="https://github.com/user-attachments/assets/8d148230-8c0c-4ba7-94f6-427b097ec894" />
+
+<img width="1077" height="952" alt="IMG_20261030_163542" src="https://github.com/user-attachments/assets/ce9db1cb-3b05-48bd-af91-35415140aac8" />
+
+
 
 • Some of my game and social media accounts are linked above.
 
@@ -53,6 +60,8 @@ ID Discord :@Evenght_Tenku
 • Minecraft YouTube "MCYT"
 
 • Hyper Squad 
+
+• Sky child of light 
 
 • Honkai star rail "HSR"
 
@@ -91,6 +100,12 @@ ID Discord :@Evenght_Tenku
 •Some of my famous works of art:
 
 •UU SMP:
+
+<img width="1332" height="758" alt="Không Có Tiêu Đề250_20260824142331" src="https://github.com/user-attachments/assets/8b5da243-19ef-42ae-a20a-c19f65d9fff4" />
+
+<img width="657" height="811" alt="Không Có Tiêu Đề218_20260731003357" src="https://github.com/user-attachments/assets/668abd77-3bab-4aa8-b154-b9bfc5ef4375" />
+
+
 <img width="735" height="778" alt="Không Có Tiêu Đề237_20260812101409" src="https://github.com/user-attachments/assets/2083f516-7184-485f-9474-7f148a7dc6f2" />
 
 <img width="735" height="713" alt="Không Có Tiêu Đề224_20260812100658" src="https://github.com/user-attachments/assets/037d19a6-afd3-4912-a307-ac3148b16724" />
@@ -98,6 +113,9 @@ ID Discord :@Evenght_Tenku
 <img width="2048" height="2015" alt="Không Có Tiêu Đề241_20260816172505" src="https://github.com/user-attachments/assets/4bd99866-a14e-4644-869b-16f7a8bbb34f" />
 
 "Sty2"
+
+<img width="1218" height="1383" alt="Không Có Tiêu Đề249_20260907143409" src="https://github.com/user-attachments/assets/fe236037-f2d2-4f6b-93fd-6428ef090add" />
+
 
 <img width="1080" height="1831" alt="Không Có Tiêu Đề270_20260909120504" src="https://github.com/user-attachments/assets/2e318521-5964-41e7-a96c-d912f5eef917" />
 
