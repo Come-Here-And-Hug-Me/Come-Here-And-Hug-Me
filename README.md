@@ -79,6 +79,7 @@ ID Discord :@evenight_tenku
 
 • and several other fandoms, etc.
 
+<img width="2520" height="2447" alt="Không Có Tiêu Đề304_Đã khôi phục_20261106184138" src="https://github.com/user-attachments/assets/be81f61e-904e-425f-a257-81bf768583d5" />
 
 
 --------------------------------------
